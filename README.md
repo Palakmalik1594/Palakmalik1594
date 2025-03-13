@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **malikpalak1332@gmail.com**
 
-- ⚡ Hobbies **I like to draw and read self motivating spiritual books.**
+- ⚡ Hobbies: **I like to draw and read self motivating spiritual books.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
